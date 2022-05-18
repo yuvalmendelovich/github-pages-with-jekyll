@@ -1,5 +1,5 @@
 ---
-title: "Welcome to my blog"
+title: "I'M THE KING "
 ---
 
-I'm glad you are here. I plan to talk about ...
+HEY EVERYONE MY NAME IS YUVAL
